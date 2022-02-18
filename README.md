@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sanjugautam@forcebolt.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/16ESyP7Clx18TQsnKPkIlOB16gJHmjnlX/edit?usp=sharing&ouid=103713831471006408744&rtpof=true&sd=true](https://docs.google.com/document/d/16ESyP7Clx18TQsnKPkIlOB16gJHmjnlX/edit?usp=sharing&ouid=103713831471006408744&rtpof=true&sd=true)
+- 📄 Know about my experiences [shorturl.at/sBEM4](shorturl.at/sBEM4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
